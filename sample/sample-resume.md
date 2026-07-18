@@ -1,7 +1,7 @@
 # Morgan Ellis
 
 Sydney, New South Wales, Australia
-morgan.ellis@email.com · linkedin.com/in/morgan-ellis · github.com/morganellis
+morgan.ellis.alias@email.com · linkedin.com/in/morgan-ellis-alias · github.com/morganellisalias
 
 ---
 
